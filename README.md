@@ -1,2 +1,2 @@
 # BTECH
-Branches in it 
+BACHELOR OF TECHNOLOGY 
